@@ -20,4 +20,4 @@ I am a passionate engineering student specializing in Artificial Intelligence an
 ---
 
 ### 🔗 Connect with me
-- [LinkedIn](https://www.linkedin.com/in/diaa-nofal)
+- [LinkedIn Profile](https://www.linkedin.com/in/diaa-nofal-3a25303b0/)
